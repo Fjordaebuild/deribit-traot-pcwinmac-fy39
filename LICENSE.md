@@ -1,4 +1,4 @@
-# 
+# Profissional deribit trading bot predefinições for Mac OS | VIP deribit trading bot predefinições for PC Windows. Featuring API de exchange descentralizada and pools de liquidez DEX — optimized for maximum performance.
 
 
 
